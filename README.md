@@ -15,7 +15,7 @@ to connect in a near future my new passion with my inner dream, the love for cod
 📫 Feel free to reach me out 
 - email: iducuaradesign@gmail.com
 - linkedIn: https://www.linkedin.com/in/ivanducuara/
-- website: docuraillustration.com
+- website: https://docuraillustration.com
 
 
 
